@@ -1,1 +1,0 @@
-# trabalho_melhorestimes_davi
